@@ -34,7 +34,7 @@ In padellino, sciogliete la 'nduja a fuoco bassissimo e con un filo d'olio.
 
 Dopo circa 15 minuti, prendete una forchetta e infilzate una patata. Se si rompe facilmente a metà vuol dire che sono pronte.
 
-Mettere le patate sotto l'acqua fredda e pelatele. Fatto questo, passatele nello schiacciapatate. 
+Mettete le patate sotto l'acqua fredda e pelatele. Fatto questo, passatele nello schiacciapatate. 
 Se non ne possedete uno, schiacciatele con cura con una forchetta o un mestolo direttamente all'interno di una ciotola.
 
 Aggiungete ora alle patate il parmigiano, 1 uovo, il sale, il pepe e la noce moscata. Mescolate bene con un mestolo, continuando a schiacciare le patate.
