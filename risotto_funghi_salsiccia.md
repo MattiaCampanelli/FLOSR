@@ -21,7 +21,7 @@
 
 ## Cosa Bere
 
--	Barbera
+-	Chianti
 -	Acqua (molta)
 
 ## Preparazione
