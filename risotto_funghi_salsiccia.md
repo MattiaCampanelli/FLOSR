@@ -35,9 +35,9 @@ Aggiungete i funghi e lasciate cuocere il tutto per 3-4 minuti, mescolando di ta
 Aggiungete ora il riso mescolate il tutto per un altro paio di minuti.
 Cominciate ora ad aggiungere brodo al riso, continuando a mescolare. ogniqualvolta il riso comincia ad asciugarsi aggiungete altro brodo, fino a cottura ultimata.
 
-Togliete il riso dal fuoco, aggiungete 50g di parmigiano a mantecare.
+Togliete il riso dal fuoco, aggiungete 50g di parmigiano a mantecare. 
 
-Guarnire e servire!
+Aggiungete infine il pepe, guarnite e servire!
 
 **FINE**
 
