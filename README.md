@@ -1,5 +1,5 @@
 # FLOSR
-## Free/Libre & Open Source Recipes (IT only)
+### Free/Libre & Open Source Recipes (IT only)
 
 - [Crocchette di patate e 'nduja](ricette/crocchette_patate_e_nduja.md)
 - [Ragù sbagliato](ricette/ragù_sbagliato.md)
