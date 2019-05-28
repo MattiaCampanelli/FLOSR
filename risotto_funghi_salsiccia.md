@@ -1,4 +1,4 @@
-# Risotto funghi e Luganica
+# Risotto funghi e Luganega
 
 ## Ingredienti
 
