@@ -5,3 +5,4 @@
 - [Ragù sbagliato](ricette/ragù_sbagliato.md)
 - [Hummus dei poveri](ricette/hummus_dei_poveri)
 - [Risotto funghi e luganega](ricette/risotto_funghi_e_luganega.md)
+- [Bigoi in salsa](ricette/bigoi_in_salsa.md)
