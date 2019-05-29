@@ -15,9 +15,9 @@
 	-	Pepe (q.b)
 	-	Noce Moscata (q.b)
 
-## Contorni
+## Contorno
 
--	Verdure ripassate in padella (scarola, cicoria, cime di rapa)
+-	Scarola, cicoria.
 
 ## Cosa Bere
 
