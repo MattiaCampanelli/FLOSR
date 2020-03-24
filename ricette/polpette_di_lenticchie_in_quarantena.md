@@ -36,7 +36,7 @@ Non fate i geni del male, se lo scolapasta è a 'maglia larga', usate altro.
 Frullate anche le lenticchie. Poi inseritele in una ciotola e aggiungete la salsina di prima.
 Aggiungete a poco a poco farina di ceci e mescolate con una forchetta, fino a quando il composto non inizierà ad addensarsi.
 Aggiungete un paio di cucchiai di pangrattato e continuate a mescolare.
-Il composto deve avere la densità adatta per essere lavorato.
+Il composto deve avere la densità adatta per essere lavorato. Non fatele troppo dense se no mangiamo sampietrini.
 Fatto questo prendete la ciotola e mettetela in frigo un po', un'ora circa. Si addenserà ulteriormente.
 
 *Potresti bere una Stout, che dici?*
