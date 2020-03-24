@@ -1,4 +1,4 @@
-# Risotto funghi e Luganega
+# Risotto funghi e luganega
 
 ## Ingredienti
 
@@ -26,10 +26,10 @@
 
 ## Preparazione
 
-Mettete a bollire per 20 minuti, in abbondante acqua salata, mezza cipolla, le carote e il sedano.
+Mettete a bollire per 20 minuti, in abbondante acqua salata, mezza cipolla, le carote e il sedano. Sarà il nostro brodo
 Nel mentre, togliete la pelle dalla luganega e tagliatela in pezzi di circa 1cm. Pulite i funghi e tagliateli a fette sottili. Tritate finemente il resto della cipolla
 
-Fate soffriggere la cipolla tritata a fuoco medio. Non appena comincia a dorarsi aggiungete la salsiccia e fatela rosolare.
+Fate soffriggere su una padella capiente la cipolla tritata a fuoco medio. Non appena comincia a dorarsi aggiungete la salsiccia e fatela rosolare.
 Aggiungete i funghi e lasciate cuocere il tutto per 3-4 minuti, mescolando di tanto in tanto.
 
 Aggiungete ora il riso e mescolate il tutto per un altro paio di minuti.
