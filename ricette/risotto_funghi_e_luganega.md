@@ -33,11 +33,11 @@ Fate soffriggere la cipolla tritata a fuoco medio. Non appena comincia a dorarsi
 Aggiungete i funghi e lasciate cuocere il tutto per 3-4 minuti, mescolando di tanto in tanto.
 
 Aggiungete ora il riso mescolate il tutto per un altro paio di minuti.
-Cominciate ora ad aggiungere brodo al riso, continuando a mescolare. ogniqualvolta il riso comincia ad asciugarsi aggiungete altro brodo, fino a cottura ultimata.
+Cominciate ora ad aggiungere brodo al riso, continuando a mescolare. Ogniqualvolta il riso comincia ad asciugarsi aggiungete altro brodo, fino a cottura ultimata.
 
 Togliete il riso dal fuoco, aggiungete 50g di parmigiano a mantecare. 
 
-Aggiungete infine il pepe, guarnite e servire!
+Aggiungete infine il pepe e servite.
 
 **FINE**
 
