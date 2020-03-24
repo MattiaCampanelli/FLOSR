@@ -2,7 +2,7 @@
 
 ## Ingredienti
 
--	Ceci precotti (quelli buoni)
+-	Ceci precotti (quelli buoni) 1 barattolo
 -	Aglio (1 spicchio)
 -	Prezzemolo (1 ciuffo)
 -	Succo di mezzo limone
