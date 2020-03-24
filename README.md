@@ -8,4 +8,4 @@ Ingredients for 4 people
 - [Risotto funghi e luganega](ricette/risotto_funghi_e_luganega.md)
 - [Bigoi in salsa](ricette/bigoi_in_salsa.md)
 - [Fegato alla veneziana](ricette/fegato_alla_veneziana.md)
-- [Polpette di lenticchie in quarantena](ricette/polpette_di_lenticchie_in_quarantena.md)
+- [Falafel di lenticchie in quarantena](ricette/falafel_di_lenticchie_in_quarantena.md)
