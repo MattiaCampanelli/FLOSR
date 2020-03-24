@@ -1,4 +1,4 @@
-# Polpette di lenticchie alla quarantena
+# Falafel di lenticchie alla quarantena
 
 ## Ingredienti
 
@@ -10,8 +10,8 @@
 -	Prezzemolo (1 ciuffo)
 -	Pangrattato (q.b.)
 -	Spezie
-    - 	Sale (q.b)
-	-	Pepe (q.b)
+    - 	Sale (q.b)	
+    -	Pepe (q.b)
 	
 ## Contorno
 
