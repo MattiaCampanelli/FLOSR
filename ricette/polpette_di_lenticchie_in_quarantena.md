@@ -43,8 +43,10 @@ Fatto questo prendete la ciotola e mettetela in frigo un po', un'ora circa. Si a
 
 Accendi il forno, impostalo a 200°C intanto. Prepara una teglia con un foglio di carta forno.
 
-Riprendi l'impasto, metti in un piatto del pangrattato. 
+Riprendi l'impasto, metti in un piatto del pangrattato con semi di sesamo, sale e pepe. 
 Inizia a fare delle piccole polpette (bagnati le mani prima) e passale nel pangrattato, per poi adagiarle sulla teglia.
+Bagnati le mani con dell'olio d'oliva e riprendi in mano tutte le polpette, delicatamente, in modo che si inumidiscano superficialmente.
+
 Inforna il tutto per quanto serve. 
 
 **FINE**
